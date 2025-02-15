@@ -1,6 +1,4 @@
-Thanks for downloading this template!
+thank you for visiting
 
-Template Name: Vlava
-Template URL: https://bootstrapmade.com/vlava-free-bootstrap-one-page-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+Telegram channel: https://t.me/DebuggingDeer
+Telegram account that can be contacted: https://t.me/Ladntern
